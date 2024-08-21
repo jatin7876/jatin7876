@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @jatin7876
 - 👀 I’m interested in coding
-- 🌱 I’m currently a student in B.E CSE
+- 🌱 I’m currently a student of B.E CSE
 - 📫 How to reach me thakurjatin8882@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i created a single app 37 times in UnityHub 
