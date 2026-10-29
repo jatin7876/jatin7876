@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @jatin7876
-- 🌱 I’m currently pursuing intership.
+- 🌱 I’m a lerner.
 - 📫 How to reach me thakurjatin8882@gmail.com
 - 😄 Pronouns: he/him
  
